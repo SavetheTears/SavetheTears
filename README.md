@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SavetheTears
+- 👋 Hi, I’m @Scott
 - 👀 I’m interested in photos and CG
 - 🌱 I’m currently tring to git works I have done before and learn new things!
 - 💞️ I’m looking to collaborate on ...
