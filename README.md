@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Scott
-- 👀 I’m interested in photos and CG
-- 🌱 I’m currently tring to git works I have done before and learn new things!
+- 👀 I’m interested in interesting things
+- 🌱 I’m currently reinforcing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me tkijoestar21@163.com
 
