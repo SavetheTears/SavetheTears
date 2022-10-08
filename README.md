@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Scott
-- 👀 I’m interested in interesting things
-- 🌱 I’m currently reinforcing
+- 👀 I’m interested in Statistics in Artificial Intelligence
+- 🌱 I’m currently a postgraduate at University of Hong Kong
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me tkijoestar21@163.com
 
